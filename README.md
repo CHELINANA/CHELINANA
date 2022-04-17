@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CHELINANA
+- 👀 I’m interested in learning/traveling/delicious food/nice movies/cats and dogs.
+- 🌱 I’m currently learning how to improve myself and find a boy friend.
+- 💞️ I’m in 158cm, 42kg, from zhejiang, I am looking for a boy who is 172-176 centimeters tall and not fat，better same from zhejiang.
+- 📫 I like knowledge-based guys, if u are, plz contact me by QQ756063150.
